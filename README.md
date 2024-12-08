@@ -1,3 +1,5 @@
+![Preview Image](maxresdefault.jpg)
+
 Tags: Sony Vegas Pro 2024 free. Download Sony Vegas Pro 2024 for free. Download free Sony Vegas Pro 2024
 
 Sony Vegas Pro 2024
